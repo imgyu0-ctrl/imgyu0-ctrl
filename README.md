@@ -1,4 +1,4 @@
-# [Name]
+# [Lim Gyuyoung]
 
 Cosmetic R&D (Base Makeup) | Graduate Student (Smart Factory / Modeling & Simulation)
 
